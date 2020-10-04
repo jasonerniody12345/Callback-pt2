@@ -1,1 +1,1 @@
-aku namanya meki memek
+aku namanya meki memekkontol
